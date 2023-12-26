@@ -7,8 +7,3 @@
  ⸜(｡˃ ᵕ ˂ )⸝♡ I’m currently learning C++ and Python(and some English)
 
 
- ∧,,,∧
- (• ⩊ •)
-|￣U U￣￣￣￣￣￣￣￣￣|
-|  have a good day!  |   
- ￣￣￣￣￣￣￣￣￣￣￣￣
